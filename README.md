@@ -1,2 +1,2 @@
 # rigvedt.github.io
-Github Page duh
+...ain't my web design skills sick?
